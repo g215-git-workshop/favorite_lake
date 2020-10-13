@@ -1,1 +1,1 @@
-My favorite lake is: Gull Lake
+My favorite lake is: Lake Lansing
