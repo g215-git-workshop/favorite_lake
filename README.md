@@ -1,1 +1,1 @@
-My favorite lake is: Green Lake
+My favorite lake is: Mud Lake
